@@ -1,2 +1,2 @@
 # YEBO Bicycle Website
-Thank you for watching my website !!!
+Thank you for watching !!!
